@@ -1,0 +1,11 @@
+swbwbdqnwksn,wns,wn
+wxlwldw
+w
+lx
+wl
+xldw
+ldx
+wlx
+wl
+lx
+wlx
